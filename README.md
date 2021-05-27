@@ -34,6 +34,9 @@ One bathroom.
 For further clarification on the analysis, you can reach out to any member on the team below;
 
 Maureen Gatu    maureen.gatu@student.moringaschool.com
+
 Asha Deen       asha.deen@student.moringaschool.com
+
 Joy Machuka     joy.machuka@student.moringaschool.com
+
 Vanessa Ng'eno  vanessa.ngeno@student.moringaschool.com
